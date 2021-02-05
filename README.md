@@ -1,8 +1,9 @@
-## Well You Did It.
-You Found Us. But how?
+## 263766255673662626662662616262737828282
+263766255673662626662662616262737828282 
+Wecomes Members Of CIS & AstralX_'s Minecraft Realm.
 
-### Who We Are
-We Are A Small Group Of People Who Want To Bring Free Stuff To The Market.
+### Since You Found Me Why Not Talk To Me On Discord?
+PixchureLive#1523
 
 ```
     
